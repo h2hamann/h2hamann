@@ -1,3 +1,3 @@
-# Hello, nerds 👋
+# Hi, nerds
 
-My Name is Christian. I make websites. Nice to meet you.
+🎾 My name is Christian. I make websites. You should do that too. It’s fun.
